@@ -1,16 +1,9 @@
+- School-level Outstanding Student - 2023
 
-- Outstanding Graduate Award (CUMT), 2025.
-
-- National Scholarship for Graduate Student, 2024.
-
-- First-Prize Scholarship (CUMT), 2024.
-
-- First-Prize Scholarship (CUMT), 2023.
-
-- Freshman Scholarship (CUMT), 2022.
-
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
-
-- First-Prize Enterprise Scholarship (CUMT), 2020.
-
-- First-Prize Scholarship (CUMT), 2019.
+- First Prize in the Provincial Division of the National College Students' Mathematics Competition - 2023, 2024
+  
+- First Prize in the Provincial Division of the National College Students' Mathematical Modeling Competition - 2024
+  
+- Excellent Completion of a Provincial-Level University Student Innovation Training Program Project - 2024
+  
+- School-level Outstanding Communist Youth League Member - 2023
