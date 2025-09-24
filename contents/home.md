@@ -1,6 +1,6 @@
 
 
-[![senli1073](https://img.shields.io/badge/senli1073-github-blue?logo=github)](https://github.com/senli1073)
+[![yuhongwang-xd](https://img.shields.io/badge/yuhongwang-xd-github-blue?logo=github)](https://github.com/yuhongwang-xd)
 
 He is currently a prospective graduate student at the State Key Laboratory of Radar Signal Processing (RSP), Xidian University.
 
