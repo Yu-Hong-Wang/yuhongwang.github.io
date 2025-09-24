@@ -2,7 +2,7 @@
 
 [![yuhongwang-xd](https://img.shields.io/badge/yuhongwang-xd?style=flat)](https://github.com/yuhongwang-xd)
 
-He is currently a prospective graduate student at the State Key Laboratory of Radar Signal Processing (RSP), Xidian University.
+He is currently a prospective graduate student at the National Key Laboratory of Radar Signal Processing (RSP), Xidian University.
 
 #### Contact
 
